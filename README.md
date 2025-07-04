@@ -23,3 +23,4 @@
 <br/>
 
 🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/duong-nguyen-dinh-07b250373/)
+🔗 [My CV](https://www.topcv.vn/xem-cv/BVdaWlRcBVFWV1AHBldRUgRQUgQEBQdQUw1aVAba13)
